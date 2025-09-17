@@ -24,7 +24,7 @@ I have had quite a few privileges in life and would like to share what help I ca
 
 A fair share of my writings will be quite political in nature; my goal is not to propagandize anyone but instead be very clear and honest about who and what I stand for. People hiding behind "both sides" or "this is not a political issue" are propagating one of this country's biggest lies: that being political and having political opinions is something to be embarrassed or afraid of. "Cancel culture" has been co-opted to frighten those who need not be afraid and shelter those who deserve retribution.
 
-I do not condone nor advocate for violence of any form.
+I do not condone nor advocate for violence of any form (including harassment).
 
 ##### Streaming/Recording setup
 

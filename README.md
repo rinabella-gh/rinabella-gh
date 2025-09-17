@@ -4,7 +4,7 @@ Hello! You can call me Rinabella :) e-mail: contact@rinabel.la
 
 As someone who tries to build in the public eye, this Github is used for showcasing my endeavors, public or otherwise. Many of these projects are quite ambitious and are just for fun; they may not ever get finished but that's okay! We take it day by day.
 
-I track a lot of my incomplete development and writing via issues; feel free to make an issue on any of my projects, but I will probably close it out. If it is something I will pursue I will probably make a separate issue myself, just for the clarity.
+I track a lot of my incomplete development and writing via issues; feel free to make an issue on any of my projects, but I will probably close it out. If it is something I will pursue I will probably make a separate issue myself, just for clarity that yes, I myself agree this is an issue and I will work on fixing it. If my projects ever get bigger than just me, then that will change.
 
 ## Why GitHub?
 

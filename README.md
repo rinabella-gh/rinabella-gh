@@ -18,7 +18,7 @@ Below follows a catalog of what you may find here.
 
 ##### Trans resources
 
-I have had quite a few privileges in life and would like to share what help I can. There are plenty of trans resources on the net already, I find that often it helps to hear the same message in someone else's words. While they're not quite in place yet, you will be find some resources on voice training, my general thoughts on gender, how to get through these adversarial times.
+I have had quite a few privileges in life and would like to share what help I can. There are plenty of trans resources on the net already, I find that often it helps to hear the same message in someone else's words. While they're not quite in place yet, you will soon be able to find some resources on voice training, my general thoughts on gender, and how to get through these adversarial times.
 
 ##### Political commentary
 

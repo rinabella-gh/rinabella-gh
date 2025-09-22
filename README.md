@@ -1,6 +1,6 @@
 # About me
 
-Hello! You can call me Rinabella :) e-mail: contact@rinabel.la
+Hello! Some call me Rinabella :) e-mail: contact@rinabel.la
 
 As someone who tries to build in the public eye, this Github is used for showcasing my endeavors, public or otherwise. Many of these projects are quite ambitious and are just for fun; they may not ever get finished but that's okay! We take it day by day.
 
